@@ -1,1 +1,0 @@
-# mc_vanilla-_resourcepacks
